@@ -1,1 +1,1 @@
-You know what to do. Just press up and don't die too quickly.
+You know what to do. Just open the jar, press up and don't die too quickly.
